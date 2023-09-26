@@ -7,4 +7,4 @@
 # About Me
 
 - Albanian 🇦🇱
-- Sophomore In High School 🏫
+
